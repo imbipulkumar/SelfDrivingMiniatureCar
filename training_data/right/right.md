@@ -1,1 +1,1 @@
-Rightt turn images.
+Right turn images.
